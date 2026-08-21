@@ -1,0 +1,1 @@
+# local-market-product-public-resources
